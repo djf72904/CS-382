@@ -9,4 +9,4 @@
 **Final Letter Grade:** A
 
 ## Special Notes
-None
+No specific grades are available due to canvas page being taken down :(
